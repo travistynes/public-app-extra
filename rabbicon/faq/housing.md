@@ -6,7 +6,7 @@ No. It is common to keep a rabbit outside in a hutch, but if your rabbit is a pe
 
 ### How can I keep my rabbit inside?
 
-The same way people keep a cat inside. Just put them on the ground and let them go about their day. The only thing you **must** do is make sure there are no electrial cords on the ground, or make sure they are covered. It's easier than you think to keep them off the ground, or keep them in a protective covering. For protective sleeves, there are [many options](https://www.amazon.com/Best-Sellers-Electronics-Cable-Sleeves/zgbs/electronics/6577542011) to choose from.
+The same way people keep a cat inside. Just put them on the ground and let them go about their day. The only thing you **must** do is make sure there are no electrical cords on the ground, or make sure they are covered. It's easier than you think to keep them off the ground, or keep them in a protective covering. For protective sleeves, there are [many options](https://www.amazon.com/Best-Sellers-Electronics-Cable-Sleeves/zgbs/electronics/6577542011) to choose from.
 
 Rabbits like to chew, some more than others. My rabbit really doesn't chew on furniture at all, so the chewing issue may not be as big of a problem as you might think.
 
