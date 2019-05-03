@@ -12,6 +12,6 @@ Kids pick up rabbits in pet stores all the time. The rabbits don't generally car
 
 ### Do rabbits like to be picked up?
 
-No. Some rabbits may put up with it, but even they would rather not be picked up. Most rabbits, even if they really like you, will kick and struggle to be put down. A rabbits own mother doesn't pick it up. In nature, if a rabbit is being picked up it's because it's about to be eaten. So, they would rather stay on the ground.
+No. Some rabbits may put up with it, but even they would rather not be picked up. Most rabbits, even if they really like you, will kick and struggle to be put down. A rabbit's own mother doesn't pick it up. In nature, if a rabbit is being picked up it's because it's about to be eaten. So, they would rather stay on the ground.
 
 If you pick up a rabbit, make sure to support its feet under your arm so it isn't as afraid. But, keep a firm grip on it so it doesn't jump out of your arms from too high up. Rabbits have fragile bones, and can easily break their backs.
