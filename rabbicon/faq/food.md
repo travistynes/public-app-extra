@@ -2,7 +2,7 @@
 
 ### What do rabbits eat?
 
-Rabbits primarily eat hay. Young rabbits should eat Alfalfa hay as it has a higher protein content. They need this while they are growing. Mature rabbits should be switched to Timothy hay. I use a 50 lb. (compressed hay bale)[https://www.tractorsupply.com/tsc/product/standlee-premium-western-forage-premium-timothy-grab-go-compressed-bale]. It lasts forever, and is much cheaper than the bags of hay you can buy at a pet store.
+Rabbits primarily eat hay. Young rabbits should eat Alfalfa hay as it has a higher protein content. They need this while they are growing. Mature rabbits should be switched to Timothy hay. I use a 50 lb. [compressed hay bale](https://www.tractorsupply.com/tsc/product/standlee-premium-western-forage-premium-timothy-grab-go-compressed-bale). It lasts forever, and is much cheaper than the bags of hay you can buy at a pet store.
 
 I also give a handful of rabbit pellets once a day. These are high in protein, so they should not get very much of this. It's more of a treat.
 

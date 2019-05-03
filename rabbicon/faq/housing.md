@@ -16,7 +16,7 @@ Yes, they will! Rabbits poop where they eat, so it's very easy to train them to 
 
 Rabbits will pee to mark their territory, so make sure to spray the area to remove the scent. When rabbits mature, they will start marking their territory more frequently. This indicates that it is time to get them spayed or neutered. Afterwards, they should stop marking their territory.
 
-One more thing. Rabbits will never *completely* use the litter box to poop. You'll always have to clean up stray poops. But you will find that the vast majority of poops will be in the litter box, and in my rabbits case she almost never pees outside of her litter box. It happens on occasion, but is quite rare.
+One more thing. Rabbits will never *completely* use the litter box to poop. You'll always have to clean up stray poops. But you will find that the vast majority of poops will be in the litter box, and in my rabbit's case she almost never pees outside of her litter box. It happens on occasion, but is quite rare.
 
 ### What kind of litter should I use?
 
