@@ -33,3 +33,19 @@ They like to lay around, sleep, eat, and poop. That's all they do. They will run
 ### Is my rabbit male or female?
 
 No one knows. Really. It's not possible to tell until they are mature, and then a vet will have to tell you. So until then, it's a big mystery.
+
+### How long do rabbits live?
+
+They live to be around 10 years old.
+
+### Should I get my rabbit spayed / neutered?
+
+Yes. Rabbits are mature enough to be spayed or neutered around 4 - 5 months old. You can also tell it's time if their behavior changes, they become more aggressive, or begin to mark their territory outside the litter box more frequently.
+
+After the surgery, your rabbit's behavior should return to "normal".
+
+### Can rabbits live alone, or should they be kept with other rabbits?
+
+Rabbits are social and can live with other rabbits, but it is also common to keep a single rabbit as a pet. From what I can tell, they seem to do alright without other rabbits. As I've mentioned, their behavior is a lot like cats.
+
+If you only have one rabbit, just make sure to give it daily attention, petting, and grooming so it doesn't get lonely. They will usually seek you out for attention, also. You will probably find that rabbits tend to like their space, and being alone is not a huge concern.
