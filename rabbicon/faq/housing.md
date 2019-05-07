@@ -26,7 +26,9 @@ Clean the litter box by dumping it out and replacing the bedding and hay at leas
 
 ### Do rabbits smell bad?
 
-No. Rabbits keep themselves very clean. Their poops are generally small, hard, round, and don't smell. Their pee also doesn't have much of an odor, if at all. I have recently read that rabbits can have a strong odor, but I have not found this to be the case. Absorbent pine pellet bedding and frequent litter box changes likely help with this.
+No. Rabbits keep themselves very clean. Their poops are generally small, hard, round, and don't smell. Their pee also doesn't have much of an odor, if at all.
+
+I have recently read that rabbits can have a strong odor, but I have not found this to be the case. Absorbent pine pellet bedding and frequent litter box changes likely help with this.
 
 ### Do rabbits need baths?
 
